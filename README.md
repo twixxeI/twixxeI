@@ -1,4 +1,4 @@
-<img align="left" src="https://file.garden/ZmCMx6iqjReY11OS/twixxellittleg" alt="image" width="160" height="200" />  <img src="https://file.garden/ZmCMx6iqjReY11OS/tumblr_2866cbd681dac57293b4de5346390538_a85d667a_2048.png" alt="creds 2 kodaswrld on tumblr" width="300" height="50" /> <br>
+<img align="left" src="https://file.garden/ZmCMx6iqjReY11OS/twixxellittleg" alt="image" width="140" height="200" />  <img src="https://file.garden/ZmCMx6iqjReY11OS/tumblr_2866cbd681dac57293b4de5346390538_a85d667a_2048.png" alt="creds 2 kodaswrld on tumblr" width="300" height="50" /> <br>
 Call me **Twix**/Twixxel.. <img src="https://64.media.tumblr.com/3ddfc670c90886830f04acfa28d2553c/6fa72c394b4fbd45-30/s75x75_c1/66cff09defabb25dcf05de62ca62c37dfcb8d502.gifv" alt="image" width="20" height="20" /> <br>
 <img src="https://64.media.tumblr.com/8d2d84a0e9bb4951205f77d683626e59/e7d74065fc3a0376-0e/s75x75_c1/84004fda8d9dd2b8a96793a303ffbf853f902a4b.webp" alt="image" width="20" height="20" />  C+H enc, No ships. Offtab/AFK, W2I. <br> 
 I block freely. -13 + 21 DNI <br> 
