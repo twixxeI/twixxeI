@@ -4,4 +4,4 @@ Call me **Twix**/Twixxel.. <img src="https://64.media.tumblr.com/3ddfc670c908868
 I block freely. **-13 + 21 DNI** @dewiethebird haiii!  <br> 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yqxqiii76xz4ltylr7nwcwxrwq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <br>
 > no i dont play about thatmob , verity, or twixxel 😭 i am very fixated on them especially twixxel (call me a "newgen" and ill block you) Also stop making mob white please you guys are so weird. half of you guys are fake fans anyway and just only there for verity sorry. Im sorry. F*ck i dont play about my pixels bro
-<img src="https://file.garden/ZmCMx6iqjReY11OS/twixxel" alt="twixxela wwwwwww" width="100px" height="200"/>
+<img src="https://file.garden/ZmCMx6iqjReY11OS/twixxel" alt="twixxela wwwwwww" width="100%" height="130"/>
