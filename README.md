@@ -1,7 +1,7 @@
 <img align="left" src="https://file.garden/ZmCMx6iqjReY11OS/twixxellittleg" alt="image" width="140" height="200" />  <img src="https://file.garden/ZmCMx6iqjReY11OS/tumblr_2866cbd681dac57293b4de5346390538_a85d667a_2048.png" alt="creds 2 kodaswrld on tumblr" width="300" height="50" /> <br>
 Call me **Twix**/Twixxel.. <img src="https://64.media.tumblr.com/3ddfc670c90886830f04acfa28d2553c/6fa72c394b4fbd45-30/s75x75_c1/66cff09defabb25dcf05de62ca62c37dfcb8d502.gifv" alt="image" width="20" height="20" /> She/**Him** <img src="https://files.catbox.moe/37u404.png" alt="girlboy" width="20" height="20" /> <img src="https://files.catbox.moe/x9ke8z.png" alt="pan" width="20" height="20" /> <br>
 <img src="https://64.media.tumblr.com/8d2d84a0e9bb4951205f77d683626e59/e7d74065fc3a0376-0e/s75x75_c1/84004fda8d9dd2b8a96793a303ffbf853f902a4b.webp" alt="image" width="20" height="20" />  C+H enc, No ships. Offtab/AFK, W2I plz. <br> 
-I block freely. **-13 + 21 DNI** @dewiethebird haiii!  <br> 
+I block freely. **-13 + 21 DNI** @dewittelurv haiii!  <br> 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yqxqiii76xz4ltylr7nwcwxrwq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <br>
 > no i dont play about thatmob , verity, or twixxel 😭 i am very fixated on them especially twixxel (call me a "newgen" and ill block you) Also stop making mob white please you guys are so weird. half of you guys are fake fans anyway and just only there for verity sorry. Im sorry. F*ck i dont play about my pixels bro <br>
 
