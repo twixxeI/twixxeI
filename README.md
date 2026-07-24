@@ -9,5 +9,3 @@
   </a>
 </p>
 <img src="https://file.garden/ZmCMx6iqjReY11OS/copy_AB2C8DA2-07E2-4FAB-87C8-E6B62F50D6D6.gif" >
-
-$\color{#2D3145}{\text{some text}}$
